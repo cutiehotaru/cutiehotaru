@@ -1,1 +1,1 @@
-aspiring dev | full-time cutie | she/her
+aspiring dev | full-time cutie 
